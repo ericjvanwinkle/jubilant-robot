@@ -1,0 +1,17 @@
+The boys hadn't spoken a word about this. Even when they would play in the forest far from anyone, it was forbidden to acknowledge the secret they shared. As eldest sons, their education was devised to prepare each to assume the reigns of the family estate. 
+
+For Tommy, this meant starting with sums and ending with insuring maritime trade. His family had a house on the rock, but his business was at the port. For James, there was an actual estate to learn about. The family had a house in the old city and another inland of the shadow of the rock with formal gardens where once they had hosted royalty. From there, his family had interests in several businesses. Somewhere along the way, each was approached by a man known to him and told about the rites.
+
+Each boy understood that his father was informed. In fact, James had deduced by a look that his father was well informed, indeed, likely part of it. Tommy didn't think it was likely that his father was part of the society, but he'd certainly know enough to warn him off if needed. All he did was meet his son's eyes levelly and nod when he arrived home from his introduction.
+
+They had started by expand on their prior learning from their own families to all the local craftsmen and laborers, guilds and moneyed families locally, but also of neighboring towns and cities. They were taught about the local judges and persons of influence.  
+
+As a matter of course, this meant spending more time at their homes in the old town and about it. The rock was a great mound of basalt on the inner extremity of a deep water inlet. As far as anyone could remember, it had been a fortress long ago and the city had first grown to support it and eventually subsumed it entirely. 
+
+This history, also, was important to their education. They spent several weeks learning which families relied on which other families to supply materials, who owed money and who was lending, and more than they anticipated about the black markets, and which criminal gangs had which interests, they were each told that tonight they would meet their cohort. 
+
+Of course there must be others, but they were given to know only that this was the beginning of something new.
+
+They each left home early in the evening to ride to the town, to the improbably named Cocks Wager. There were such entertainments be found, but they weren't so freely advertised. They met at the entrance to the stables. Their horses were taken to rest, but they didn't approach the main entrance. They spied someone slipping into a cellar door and they knew it was their path as well.
+
+They acknowledged each other and walked together and descended into the cellar.
